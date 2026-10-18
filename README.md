@@ -1,6 +1,6 @@
 <h4 align="center"> ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ 
  ‎
-‎<img width="400" height="400" alt="IMG_5928" src="https://github.com/user-attachments/assets/0f8794ba-a0cd-439a-a9ee-e42bac7a4285" />
+‎<img width="812" height="307" alt="Titelloses_1228_20261018172038" src="https://github.com/user-attachments/assets/027827ae-04a2-41f3-90ed-47f7953dddfa" />
 
  ‎ ‎
  
